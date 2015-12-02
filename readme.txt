@@ -1,2 +1,0 @@
-#you can see my liknedin profile here
-https://ir.linkedin.com/in/farbod-behnaminia-bb6776b7
